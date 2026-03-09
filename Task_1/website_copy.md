@@ -1,6 +1,6 @@
 # MIDNIGHT LOVE Café – Website Copy
 **Location:** Hyderabad  
-**Type:** Late-night tea café & hangout spot  
+**Type: ** Late-night tea café & hangout spot  
 
 ---
 
